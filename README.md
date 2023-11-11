@@ -6,10 +6,9 @@
 关注 telegram 小飞机频道 以及YouTube 频道，陆续分享更多付费的网赚教程
 教程下载地址也在频道，建议用7z解压自己谷歌搜索下载
 
-telegram频道：@xiaozhaoshare
-我的telegram：@xiaozhao1983
-telegram群: @xiaozgroup
-
+telegram频道：https://t.me/xiaozhaoshare 
+我的telegram：https://t.me/xiaozhao1983 
+telegram群: https://t.me/xiaozgroup
 
 ❤️‍🔥价值1W的cvv教父星天乐付费教程❤️‍🔥
 
